@@ -4,4 +4,4 @@ This is self-introduction.
 ## 詳細 About me  
 こう見えて高校生です。普通科の人です。  
 ## リンクたち Links  
-X（旧Twitter）[Here](https://x.com/Yonyonsan_443)
+X（旧Twitter）[Here](https://x.com/Yonyonsan443)
