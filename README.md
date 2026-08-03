@@ -8,3 +8,5 @@ This is self-introduction.
 X（旧Twitter）[Here](https://x.com/Yonyonsan443)
 
 Qiita [Here](https://qiita.com/YonYonSan-443)
+
+note [Here](https://note.com/yonyonsan443)
